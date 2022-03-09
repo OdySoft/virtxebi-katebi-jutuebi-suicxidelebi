@@ -1,1 +1,1 @@
-# virtxebi-katebi-jutuebi-suicxidelebi
+# SuicxideSkuad
